@@ -1,4 +1,4 @@
-# 
+# مجاني dexscreener sniper bot وظائف إضافية لـ Mac OS | مخصص dexscreener sniper bot وظائف إضافية لـ PC Windows. مع فهرسة البلوكشين و التحكم في الانزلاق — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
